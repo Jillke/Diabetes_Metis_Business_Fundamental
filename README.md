@@ -1,4 +1,4 @@
-# Prevent or Delay Type 2 Diabetes 
+# Prevent or Delay Diabetes 
 
 ## Abstract  
 
